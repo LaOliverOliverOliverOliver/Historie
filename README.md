@@ -41,3 +41,5 @@ han følte noe ned i busken ble "unromal"
 han klarte ikke å holde det inne
 
 han så om noen var utenfor, henne var ikke klar for hva som skal skje
+
+så han release så hard hele rommet ble hvit.
