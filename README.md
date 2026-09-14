@@ -29,3 +29,5 @@ neste dag kom det en jente ned ditt
 som var søstra til fyren fra forige dag
 
 hun for veldig SUR ut.
+
+man han hadde sin type og likte sure folk
