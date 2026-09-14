@@ -21,3 +21,5 @@ så skulle de sove for neste dag
 de vokna opp i en våt seng
 
 hva som er våt i sengen får man aldri vite
+
+så dro han andre fyrer hjem
