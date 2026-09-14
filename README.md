@@ -25,3 +25,5 @@ hva som er våt i sengen får man aldri vite
 så dro han andre fyrer hjem
 
 neste dag kom det en jente ned ditt
+
+som var søstra til fyren fra forige dag
