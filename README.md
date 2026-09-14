@@ -35,3 +35,5 @@ man han hadde sin type og likte sure folk
 han håpet at han skulle bli hennes slave
 
 han begynte å begge som bare det.
+
+han følte noe ned i busken ble "unromal"
