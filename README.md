@@ -18,4 +18,6 @@ så ble det kveld
 
 så skulle de sove for neste dag 
 
-de vokna opp i en vot seng
+de vokna opp i en våt seng
+
+hva som er våt i sengen får man aldri vite
