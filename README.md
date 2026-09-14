@@ -27,3 +27,5 @@ så dro han andre fyrer hjem
 neste dag kom det en jente ned ditt
 
 som var søstra til fyren fra forige dag
+
+hun for veldig SUR ut.
