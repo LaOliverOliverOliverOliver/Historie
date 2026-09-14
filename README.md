@@ -37,3 +37,5 @@ han håpet at han skulle bli hennes slave
 han begynte å begge som bare det.
 
 han følte noe ned i busken ble "unromal"
+
+han klarte ikke å holde det inne
