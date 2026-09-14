@@ -31,3 +31,5 @@ som var søstra til fyren fra forige dag
 hun for veldig SUR ut.
 
 man han hadde sin type og likte sure folk
+
+han håpet at han skulle bli hennes slave
