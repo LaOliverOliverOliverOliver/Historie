@@ -47,3 +47,7 @@ så han release så hard hele rommet ble hvit.
 han ble slått hard av en jente for første gang. 
 
 The End
+
+
+
+En dag var en fyr ute i oslo
