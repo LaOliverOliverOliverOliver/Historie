@@ -16,4 +16,6 @@ dette endte med at buksen gikk ned også...
 
 så ble det kveld
 
-så skulle de sove fo r neste dag 
+så skulle de sove for neste dag 
+
+de vokna opp i en vot seng
