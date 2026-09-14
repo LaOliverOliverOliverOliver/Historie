@@ -39,3 +39,5 @@ han begynte å begge som bare det.
 han følte noe ned i busken ble "unromal"
 
 han klarte ikke å holde det inne
+
+han så om noen var utenfor, henne var ikke klar for hva som skal skje
